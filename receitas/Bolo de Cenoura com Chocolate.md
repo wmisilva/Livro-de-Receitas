@@ -2,7 +2,7 @@
 
 ### Ingredientes 
 
-​        ***Massa*** 
+​       ***Massa*** 
 
 - 1/2 xícara (chá) de óleo1 tablete de caldo de galinha 
 
