@@ -32,7 +32,17 @@
 
 ### Modo de Preparo
 
-1. Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e, dissolva o caldo. Logo em seguida coloque o frango picado em cubos na panela e deixe cozinhar, sempre dando uma olhadinha para não queimar.
-2. Assim que o frango estiver bem cozido, acrescente o molho de tomate, o ketchup, a mostarda e champignon a gosto.
-3. Abaixe o fogo e coloque o creme de leite e mexa bem até se tornar um creme homogêneo.
-4. Está pronto para servir.
+   ***Massa*** 
+
+1. Em um liquidificador, adicione a cenoura, os ovos e o óleo, depois misture.
+2. Acrescente o açúcar e bata novamente por 5 minutos.
+3. Em uma tigela ou na batedeira, adicione a farinha de trigo e depois misture novamente.
+4. Acrescente o fermento e misture lentamente com uma colher.
+5. Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
+
+
+
+   ***Cobertura***  
+
+1. Despeje em uma tigela a manteiga, o chocolate em pó, o açúcar e o leite, depois misture.
+2. Leve a mistura ao fogo e continue misturando até obter uma consistência cremosa, depois despeje a calda por cima do bolo.
