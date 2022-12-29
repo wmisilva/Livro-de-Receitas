@@ -20,7 +20,7 @@
 
 - batata palha e arroz branco para acompanhar
 
-  
+
 
 ### Modo de Preparo
 
